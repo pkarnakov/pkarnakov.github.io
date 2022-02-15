@@ -1,2 +1,0 @@
-# pkarnakov.github.io
-Homepage
